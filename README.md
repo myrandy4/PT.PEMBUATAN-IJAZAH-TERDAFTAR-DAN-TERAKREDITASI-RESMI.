@@ -1,0 +1,2 @@
+# PT.PEMBUATAN-IJAZAH-TERDAFTAR-DAN-TERAKREDITASI-RESMI.
+Beli Ijazah SMP-SMA-S1-S2-D3-DLL,  Terdaftar &amp; Terakreditasi Resmi, Kuliah Kilat dan Instan. Anda butuh ijazah kami bisa membantu anda dapatkan yang Asli &amp; Terdaftar di PTS/PTN dan  DIKTI/KOPERTIS, kami kerja samanya dengan orang dalamnya dikampus dan semua pesanan diproses langsung dalamnya.  Hub. 🌐 Website kami :  https://www.jalurforlap.com https://wa.me/6282148900769 Saputrapratama48@gmail.com
